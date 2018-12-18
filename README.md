@@ -1,1 +1,1 @@
-# Este es un repositorio para subir mis archivos
+# Este es un repositorio para subir mis cosas
